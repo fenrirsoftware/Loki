@@ -1,3 +1,6 @@
+ BİRLİKTE GÜÇLÜ OLMAK MAYMUNLAR
+ 
+ 
  Loki  ıp changer V0.1
 
 
